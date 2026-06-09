@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with king legacy Scripts new, the #1 Script. Includes infinite resources and auto-collect for unbeatable
 
 
 
